@@ -10,4 +10,4 @@
 
 <p>本专区专注于收录日韩精品与国产偷窥类视频资源，内容涵盖各类高清影视及另类视觉体验。所有资源均支持在线播放，无需下载，体验流畅无广告。每日更新，助您畅享最新、最热的视频享受。</p>
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/sap20250709/sap13 ）</span>
